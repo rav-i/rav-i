@@ -1,2 +1,2 @@
-- 📫 How to reach me ravisankarr1406@gmail.com
+- 📫 How to reach me rev6336 @ discord
 
